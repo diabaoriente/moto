@@ -1,3 +1,2 @@
-
-![Uploading CRF250RX.jpg…]()
+[Uploading CRF250RX.jpg…]
 
